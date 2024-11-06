@@ -5,5 +5,4 @@ My Updated Resume
 
 
 
-
-![Untitled](https://github.com/user-attachments/assets/d4f132ea-f74b-4436-9e1d-91e39127a12b)
+![Screenshot 2024-11-05 at 10 36 38 PM](https://github.com/user-attachments/assets/7c535e28-9fae-40ef-8235-558609137ca7)
